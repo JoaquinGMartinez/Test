@@ -1,6 +1,6 @@
 la wea
 fome
 
-hola soy el mora
-me gusta el color morado
-me gustan los fideos y me gusta el silksong
+hola soy el svent
+me gusta el color negro
+me gustan los femboys y me gusta el pico
